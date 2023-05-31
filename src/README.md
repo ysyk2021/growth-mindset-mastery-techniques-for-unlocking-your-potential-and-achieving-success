@@ -17,4 +17,4 @@ Through practical exercises and real-life examples, you'll learn how to apply th
 
 Remember, developing a growth mindset is an ongoing process that requires dedication, hard work, and a willingness to embrace challenges and learn from your mistakes. Keep pushing forward and dedicating time and effort towards unlocking your potential and achieving success in all areas of life.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
