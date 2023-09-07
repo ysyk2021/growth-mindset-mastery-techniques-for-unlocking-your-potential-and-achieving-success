@@ -1,8 +1,3 @@
-Chapter 3: Developing a Growth Mindset
-======================================
-
-Introduction
-------------
 
 Developing a growth mindset is crucial for achieving success and personal growth. It requires a shift in the way we perceive ourselves, our abilities, and our challenges. In this chapter, we will explore strategies for building a growth mindset through positive self-talk, mindfulness, and gratitude.
 

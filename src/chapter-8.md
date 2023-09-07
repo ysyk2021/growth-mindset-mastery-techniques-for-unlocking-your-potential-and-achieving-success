@@ -1,5 +1,3 @@
-Chapter 8: Overcoming Self-Limiting Beliefs
-===========================================
 
 In this chapter, we'll explore how to overcome self-limiting beliefs. We'll discuss strategies for recognizing and challenging negative self-talk, beliefs, and assumptions to unlock your potential. We'll also examine the benefits of overcoming self-limiting beliefs for improved confidence, resilience, and personal growth.
 

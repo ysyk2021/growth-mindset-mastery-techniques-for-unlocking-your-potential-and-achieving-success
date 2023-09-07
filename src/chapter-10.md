@@ -1,5 +1,3 @@
-Chapter 10: Sustaining Growth Mindset Mastery
-=============================================
 
 In this chapter, we'll explore how to sustain growth mindset mastery. We'll discuss strategies for maintaining positive habits, preventing burnout, and managing future challenges. We'll also examine the benefits of sustaining growth mindset mastery for continued self-improvement, perseverance, and success in all areas of life.
 

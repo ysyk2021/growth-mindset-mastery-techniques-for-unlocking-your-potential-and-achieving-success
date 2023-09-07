@@ -1,5 +1,3 @@
-The Importance of Growth Mindset Mastery for Improved Learning, Creativity, and Resilience
-===================================================================================================================
 
 The Importance of Growth Mindset
 --------------------------------

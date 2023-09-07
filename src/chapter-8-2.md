@@ -1,8 +1,3 @@
-Strategies for Recognizing and Challenging Negative Self-talk, Beliefs, and Assumptions to Unlock Your Potential
-=============================================================================================================================================================
-
-Introduction
-------------
 
 Self-limiting beliefs can hold individuals back from achieving their potential. Negative self-talk, beliefs, and assumptions can create a fixed mindset that undermines personal growth and success. Overcoming self-limiting beliefs requires adopting a growth mindset and using strategies to recognize and challenge negative self-talk, beliefs, and assumptions. This chapter will explore strategies for overcoming self-limiting beliefs to unlock your potential.
 

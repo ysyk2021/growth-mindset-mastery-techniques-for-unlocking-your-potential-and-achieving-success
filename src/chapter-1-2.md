@@ -1,5 +1,3 @@
-Growth Mindset, Fixed Mindset, Potential, and Success
-=====================================================================================================
 
 Defining Growth Mindset
 -----------------------

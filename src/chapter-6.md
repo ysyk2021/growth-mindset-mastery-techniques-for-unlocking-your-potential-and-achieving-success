@@ -1,5 +1,3 @@
-Chapter 6: Cultivating a Growth Mindset Culture
-===============================================
 
 In this chapter, we'll explore how to cultivate a growth mindset culture. We'll discuss strategies for encouraging growth mindset in others, creating a supportive environment, and celebrating success. We'll also examine the benefits of cultivating a growth mindset culture for improved team collaboration, creativity, and organizational success.
 

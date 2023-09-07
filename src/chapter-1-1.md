@@ -1,5 +1,3 @@
-Understanding the Importance of Growth Mindset for Personal and Professional Growth
-============================================================================================================
 
 The Importance of Growth Mindset
 --------------------------------
