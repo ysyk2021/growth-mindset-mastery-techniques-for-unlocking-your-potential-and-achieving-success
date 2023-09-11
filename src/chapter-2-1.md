@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Science of Growth Mindset
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the science behind the growth mindset. Understanding the underlying psychological and neurological principles can deepen our appreciation for the power of adopting a growth mindset. By delving into the research and theories, you will gain insight into the mechanisms that drive personal growth and success. Let's uncover the science behind the growth mindset.
 

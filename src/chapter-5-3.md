@@ -1,5 +1,4 @@
-Chapter 5: The Benefits of Expanding Your Comfort Zone for Improved Personal Growth, Self-Confidence, and Decision-Making
-=========================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the tremendous benefits that come with expanding your comfort zone. Stepping outside of your familiar boundaries and embracing new experiences can lead to personal growth, increased self-confidence, and improved decision-making skills. By understanding and actively pushing the limits of your comfort zone, you can unlock your full potential and achieve success in all areas of life.
 

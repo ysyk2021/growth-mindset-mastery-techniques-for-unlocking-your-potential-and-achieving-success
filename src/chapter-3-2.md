@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Building a Growth Mindset through Positive Self-Talk, Mindfulness, and Gratitude
-==========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful strategies for building a growth mindset through practices such as positive self-talk, mindfulness, and gratitude. These techniques can help reframe your thinking, cultivate self-awareness, and foster a mindset that embraces challenges and grows from them.
 

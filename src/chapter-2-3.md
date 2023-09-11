@@ -1,5 +1,4 @@
-Chapter 8: Research-Backed Evidence on the Impacts of Growth Mindset on Personal and Professional Success
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the research-backed evidence on the impacts of growth mindset on personal and professional success. Numerous studies have demonstrated the powerful effects of adopting a growth mindset in various domains of life. By examining the findings from scientific research, we can understand how embracing a growth mindset can unlock our potential and lead to greater achievements. Let's delve into the research and uncover the impacts of growth mindset on personal and professional success.
 

@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Maintaining Positive Habits, Preventing Burnout, and Managing Future Challenges
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for maintaining positive habits, preventing burnout, and managing future challenges. By implementing these strategies, you can sustain your growth mindset, ensure long-term success, and protect your well-being.
 

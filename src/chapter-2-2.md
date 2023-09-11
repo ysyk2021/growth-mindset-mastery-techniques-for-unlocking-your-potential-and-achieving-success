@@ -1,5 +1,4 @@
-Chapter 4: Exploring the Psychology and Neuroscience of Growth Mindset and Fixed Mindset
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the psychology and neuroscience behind the concepts of growth mindset and fixed mindset. By understanding the underlying mechanisms and processes in the brain and the psychological factors at play, we can gain insights into how these mindsets shape our beliefs, attitudes, and behaviors. Let's explore the fascinating world of growth mindset and fixed mindset through the lens of psychology and neuroscience.
 

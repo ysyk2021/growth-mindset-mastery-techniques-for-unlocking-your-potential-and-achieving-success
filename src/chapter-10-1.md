@@ -1,5 +1,4 @@
-Chapter 12: Sustaining Growth Mindset Mastery
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques for sustaining growth mindset mastery. Building a growth mindset is an ongoing journey, and it requires consistent effort and practice. By implementing the following strategies, you can ensure the continuous development of your growth mindset and unlock your full potential.
 

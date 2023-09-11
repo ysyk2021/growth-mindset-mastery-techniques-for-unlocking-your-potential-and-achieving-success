@@ -1,5 +1,4 @@
-Chapter 7: Setting Realistic Goals and Taking Action
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of setting realistic goals and taking action to achieve success in all areas of life. Setting goals that are attainable and taking consistent steps towards them is a fundamental aspect of developing a growth mindset and unlocking your full potential.
 

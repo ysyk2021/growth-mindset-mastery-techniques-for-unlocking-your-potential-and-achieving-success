@@ -1,5 +1,4 @@
-Chapter 10: The Benefits of Fostering Creativity and Innovation for Improved Problem-Solving Skills, Productivity, and Organizational Success
-=============================================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the benefits of fostering creativity and innovation in both personal and professional settings. Developing a growth mindset that embraces experimentation, original thinking, and continuous improvement can lead to improved problem-solving skills, increased productivity, and organizational success.
 

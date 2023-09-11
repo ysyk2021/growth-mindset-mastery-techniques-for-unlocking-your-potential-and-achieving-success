@@ -1,5 +1,4 @@
-Chapter 6: The Benefits of Sustaining Growth Mindset Mastery for Continued Self-Improvement, Perseverance, and Success in All Areas of Life
-===========================================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits of sustaining growth mindset mastery. By continuously cultivating and applying a growth mindset, you can experience personal growth, persevere through challenges, and achieve success in all areas of your life.
 

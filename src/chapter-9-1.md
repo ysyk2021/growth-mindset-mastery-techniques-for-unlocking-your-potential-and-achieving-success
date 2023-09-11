@@ -1,5 +1,4 @@
-Chapter 12: Fostering Creativity and Innovation
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for fostering creativity and innovation. Developing a growth mindset not only allows you to overcome challenges and achieve success but also enables you to unleash your creative potential and drive innovation. By cultivating a mindset that embraces experimentation, original thinking, and continuous improvement, you can become a catalyst for creativity and innovation in all areas of your life.
 

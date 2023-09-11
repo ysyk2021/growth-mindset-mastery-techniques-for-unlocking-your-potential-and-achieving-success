@@ -1,5 +1,4 @@
-Chapter 5: Cultivating a Growth Mindset Culture
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the essential steps and techniques for cultivating a growth mindset culture in all areas of life. By creating an environment that fosters a growth mindset, both individuals and organizations can unlock their potential and achieve success. Let's dive into the strategies that will help you build a growth mindset culture.
 

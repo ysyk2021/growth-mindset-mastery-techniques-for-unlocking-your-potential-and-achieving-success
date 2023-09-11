@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Practicing Embracing Challenges, Learning from Failure, and Overcoming Obstacles
-==========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for practicing embracing challenges, learning from failure, and overcoming obstacles. Successful individuals with a growth mindset understand that these experiences provide valuable opportunities for growth and development. By adopting the following strategies, you can navigate challenges and failures with greater ease and emerge stronger and more resilient. Let's delve into the techniques for practicing embracing challenges and overcoming obstacles.
 

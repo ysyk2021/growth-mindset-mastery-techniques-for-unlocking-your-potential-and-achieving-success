@@ -1,5 +1,4 @@
-Chapter 8: The Benefits of Overcoming Self-Limiting Beliefs for Improved Confidence, Resilience, and Personal Growth
-====================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the benefits of overcoming self-limiting beliefs and developing a growth mindset. By challenging and replacing these limiting beliefs, individuals can improve their confidence, resilience, and experience significant personal growth.
 

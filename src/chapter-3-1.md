@@ -1,5 +1,4 @@
-Chapter 2: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of a growth mindset and learn techniques to develop and cultivate this mindset. By understanding the power of a growth mindset and implementing specific strategies, you can unlock your full potential and achieve success in all areas of life.
 

@@ -1,5 +1,4 @@
-Chapter 6: Overcoming Self-Limiting Beliefs
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of self-limiting beliefs and provide techniques for overcoming them. Self-limiting beliefs are negative thoughts or perceptions that individuals hold about themselves and their abilities. These beliefs can hinder personal growth, success, and fulfillment. By identifying and challenging these beliefs, individuals can break free from their limitations and unlock their true potential.
 
